@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on platforms 
 - 📫 How to reach me (Ask Jesus
 - 😄 Pronouns: Friend of God. Male
-- ⚡ Fun fact: I love ya, and I love to be social, speak on wildlife, the Lord, fam.
+- ⚡ Fun fact: I love ya and Jesus loves you more, and I love to be social, speak on wildlife, the Lord, fam.
 
 <!---
 Josh-YHWH33/Josh-YHWH33 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
